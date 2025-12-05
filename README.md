@@ -6,7 +6,7 @@ call me miw or any pronoun (￣▽￣)"
 im really really friendly sometime i need friend heh 
 
 ''\ multifandom ((any fandom int heh))
-📍im in roblox args , trud , aov , hnk , tbhk , hnk and a lot heh
+📍im in roblox args , trud , aov , hsr , tbhk , hnk and a lot heh
 
 ---------------------------------------------------------------------------------------
  ### xxxxx warning xxxxx
