@@ -4,6 +4,7 @@
 
 call me miw or any pronoun (￣▽￣)"
 im really really friendly sometime i need friend heh 
+
 ''\ multifandom ((any fandom int heh))
  ### xxxxx warning xxxxx
  ### DNI proship , drakship , pedo , and if ur are a rude person 
