@@ -1,10 +1,12 @@
-hi (●'◡'●)  !!
+7 : 31 '
 
-< < - -about me - - > >
+### < < - -about me - - > >
 
-### DNI proship , drakship , pedo , and if ur are a rude person dni dni ^_^
-
-im not good at english pls respect me and pls do not tease me ty
+call me miw or any pronoun (￣▽￣)"
+im really really friendly sometime i need friend heh 
+ ### warning xxxxx
+ ### DNI proship , drakship , pedo , and if ur are a rude person 
+ --- im not good at english and conversation pls respect me and pls do not tease me ty ---
 
 - C+H alway welcome !! i love cuddle smm 
 - if u wanna talk to me just whisper i only talk when u whisper """ w2i only!!!
@@ -13,3 +15,4 @@ im not good at english pls respect me and pls do not tease me ty
   
 ## !! THIS IS JUST A TEST AND WIP,THERE MIGHT BE MORE TO COME IN THE FUTURE !! ## 
 ----------------------------------------------------------------------------------------
+- miw 
