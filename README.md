@@ -6,7 +6,7 @@ call me miw or any pronoun (￣▽￣)"
 im really really friendly sometime i need friend heh 
  ### warning xxxxx
  ### DNI proship , drakship , pedo , and if ur are a rude person 
- --- im not good at english and conversation pls int first and respect me and pls do not tease me ty ---
+ --- im not good at english and conversation pls int first and respect me pls do not tease me ty ---
 
 - C+H alway welcome !! i love cuddle smm 
 - if u wanna talk to me just whisper i only talk when u whisper ', w2int only!!!
