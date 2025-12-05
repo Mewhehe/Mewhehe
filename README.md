@@ -6,6 +6,8 @@ call me miw or any pronoun (￣▽￣)"
 im really really friendly sometime i need friend heh 
 
 ''\ multifandom ((any fandom int heh))
+📍im in roblox args , trud , aov , hnk , tbhk , hnk and a lot heh
+
 ---------------------------------------------------------------------------------------
  ### xxxxx warning xxxxx
  ### DNI proship , drakship , pedo , and if ur are a rude person
