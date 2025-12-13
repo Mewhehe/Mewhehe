@@ -18,7 +18,8 @@ im really really friendly sometime i need friend heh
 - if u wanna talk to me just whisper i only talk when u whisper ', w2int only!!!
 - mostly im still with friends or alone u can sit with me idm (★ ω ★)
 -  im really really a sensitive person mostly i alway think much（；´д｀）ゞ
+-  i love ace btw U_U
   
 ## !! THIS IS JUST A TEST AND WIP,THERE MIGHT BE MORE TO COME IN THE FUTURE !! ## 
 ----------------------------------------------------------------------------------------
-from miw,,thank you  > <
+from miw ,, thank you ^^ 
