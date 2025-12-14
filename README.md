@@ -22,5 +22,4 @@ im really really friendly sometime i need friend heh
   
 ## !! THIS IS JUST A TEST AND WIP,THERE MIGHT BE MORE TO COME IN THE FUTURE !! ## 
 ----------------------------------------------------------------------------------------
-colormytree.me
 from miw ,, thank you ^^ 
