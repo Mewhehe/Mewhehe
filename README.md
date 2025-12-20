@@ -1,3 +1,1 @@
-STILL WIP -_- AND
-ALWAY FEEL FREE TO CxH IDM !!
-
+ขี้เกียจจังแชท
