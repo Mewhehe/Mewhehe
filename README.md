@@ -1,4 +1,4 @@
-# #PLS SIGN MY ----->> [ATABOOK](https://mewhehe.atabook.org/) AND [STRAW](https://miwmewhehehe.straw.page) # #
+# PLS SIGN MY ----->> [ATABOOK](https://mewhehe.atabook.org/) AND [STRAW](https://miwmewhehehe.straw.page) #
 
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------
