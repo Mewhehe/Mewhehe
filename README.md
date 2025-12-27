@@ -1,4 +1,4 @@
- [atabook](https://mewhehe.atabook.org/)                                             [straw](https://miwmewhehehe.straw.page)
+ [atabook](https://mewhehe.atabook.org/)                                    [st [atabook](https://mewhehe.atabook.org/) / [straw](https://miwmewhehehe.straw.page)raw](https://miwmewhehehe.straw.page)
 
 
 
