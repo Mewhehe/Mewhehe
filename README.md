@@ -1,9 +1,7 @@
 SIGN MY --->>  [ATABOOK](https://mewhehe.atabook.org/)    /    [STRAW](https://miwmewhehehe.straw.page) <<------ 
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------
-;
-;
-<p aling="center>![roblox-arg-recall-a-hollow-heart](https://github.com/user-attachments/assets/da3a824a-668d-4960-8cc1-801adc099643)
+< aling="center>![roblox-arg-recall-a-hollow-heart](https://github.com/user-attachments/assets/da3a824a-668d-4960-8cc1-801adc099643)
 
 
 
