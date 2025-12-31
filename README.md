@@ -1,9 +1,6 @@
 # [ATABOOK](https://mewhehe.atabook.org/)  //  [STRAW](https://miwmewhehehe.straw.page) （；´д｀）ゞ  
 
 
-----------------------------------------------------------------------------------------------------------------------------------------------------
-
-(print)                            ![roblox-arg-recall-a-hollow-heart](https://github.com/user-attachments/assets/913ae0c7-0c47-46a6-970a-15ed0442f4b8)
 
 
 
