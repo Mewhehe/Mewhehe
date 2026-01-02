@@ -10,6 +10,6 @@
 
 
 
-[atahttps://mewhehe.atabook.org/](https://mewhehe.atabook.org/) / straw
+[atahttps://mewhehe.atabook.org/](https://mewhehe.atabook.org/) / [[straw]https://miwmewhehehe.straw.page](https://miwmewhehehe.straw.page)
 
 
