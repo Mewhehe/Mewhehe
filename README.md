@@ -10,6 +10,6 @@
 
 
 
-ATABOOK . [STRAW](https://miwmewhehehe.straw.page)
+[ATABOOK](https://mewhehe.atabook.org/) . [STRAW](https://miwmewhehehe.straw.page)
 
 
