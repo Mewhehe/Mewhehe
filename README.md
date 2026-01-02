@@ -12,4 +12,4 @@
 
 [ATABOOK](https://mewhehe.atabook.org/) . [STRAW](https://miwmewhehehe.straw.page)
 
-https://open.spotify.com/track/1c2AFg2WpURtpsOTMr6ZBX
+
