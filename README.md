@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=ff69b4&style=flat&label=-=￣ω￣=)
+![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=ff69b4&style=flat&label=-~(=^‥^)ノ)
 
 
 
