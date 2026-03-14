@@ -7,4 +7,4 @@
 
 </div>
 
-[[ATABOOK]httphttps://mewhehe.atabook.org]
+[[ATABOOK]https://mewhehe.atabook.org/](https://mewhehe.atabook.org/)
