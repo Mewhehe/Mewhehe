@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username==￣ω￣=&color=ff69b4&style=flat-square)
+![Views](https://komarev.com/ghpvc/?username=(=￣ω￣=)&color=ff69b4&style=flat-square)
 
 
 
