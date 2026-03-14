@@ -1,6 +1,5 @@
 <div align="center">
 
-<img src="URL_https://tenor.com/view/umbrella-skullgirls-umbrella-skullgirls-skullgirls-umbrella-gif-103210155064730994.gif" width="30" />
 
 <br />
 
@@ -8,3 +7,4 @@
 
 </div>
 
+[[ATABOOK]httphttps://mewhehe.atabook.org]
