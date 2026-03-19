@@ -4,7 +4,7 @@
 
 
 
-umbrella my goat(≧∇≦)ﾉ
+my goat(≧∇≦)ﾉ
 
 ![umbrella-skullgirls](https://github.com/user-attachments/assets/56f9e96a-93c8-4906-921d-9bd6274fbfc5)
 ![grace-roblox-open-mouth](https://github.com/user-attachments/assets/8a54e61d-8d3d-416e-99ae-5e10dc3f8078)
