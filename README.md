@@ -2,9 +2,11 @@
 
 ![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=83a8d4&style=flat&label=-(>'-'<))
 
-
-
 my goat(≧∇≦)ﾉ
+
+![grace-roblox-grace](https://github.com/user-attachments/assets/5cc8b847-7173-42b2-a346-e1536c17279a)
+
+
 
 ![umbrella-skullgirls](https://github.com/user-attachments/assets/56f9e96a-93c8-4906-921d-9bd6274fbfc5)
 ![grace-roblox-open-mouth](https://github.com/user-attachments/assets/8a54e61d-8d3d-416e-99ae-5e10dc3f8078)
