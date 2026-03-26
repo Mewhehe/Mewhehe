@@ -7,7 +7,9 @@
 
 
 ![grace-roblox-open-mouth](https://github.com/user-attachments/assets/80327122-17cd-47a6-b22f-7804710acd5b)
-![diamond-houseki-no-kuni](https://github.com/user-attachments/assets/3e6c7c1a-5561-4722-b498-30b895e81f3d)
+![snap-grace-roblox](https://github.com/user-attachments/assets/1a3d2ac3-2b27-4184-8328-34fcfae99a37)
+![grace-roblox-goober-running](https://github.com/user-attachments/assets/ec1841d3-a99c-4d9a-8dca-f9cbe2ca119a)
+
 
 
 
