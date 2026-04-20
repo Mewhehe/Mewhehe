@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=572e54&style=572e54=Wifies)
+![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=572e54&style=572e54=spyglass)
 
 
 
