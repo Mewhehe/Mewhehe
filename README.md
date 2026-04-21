@@ -6,7 +6,7 @@
 
 <img width="30" height="30" alt="spyglass-minecraft" src="https://github.com/user-attachments/assets/fcb17733-b1dd-4f7a-9871-124f5ef905f4" />  
 
- <img width="30" height="30" alt="spyglass-minecraft" src="https://github.com/user-attachments/assets/fcb17733-b1dd-4f7a-9871-124f5ef905f4" />
+
 
 
 <img width="520" height="417" alt="173_20260421111626-removebg-preview" src="https://github.com/user-attachments/assets/a661ea89-2658-44f2-b9de-214f625ef1b6" />
