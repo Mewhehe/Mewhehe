@@ -7,7 +7,6 @@
 
 
 
-<img width="200" height="200" alt="15a3c414294a3deea2e91876d7d85adc" src="https://github.com/user-attachments/assets/2b310c1f-956b-48c1-95cc-51cc3c95ed2b" />
 
 
 
