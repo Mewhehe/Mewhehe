@@ -22,7 +22,7 @@
 
 
 
-[ATABOOK](https://mewhehe.atabook.org/)      spyglass-minecraft" src="https://github.com/user-attachments/assets/fcb17733-b1dd-4f7a-9871-124f5ef905f4" />               [STRAW](https://miwhehe.straw.page) 
+[ATABOOK](https://mewhehe.atabook.org/)          🦜☯️          [STRAW](https://miwhehe.straw.page) 
 
 
 
