@@ -22,8 +22,9 @@
 
  <img width="30" height="30" alt="spyglass-minecraft" src="https://github.com/user-attachments/assets/fcb17733-b1dd-4f7a-9871-124f5ef905f4" />
 
-[ATABOOK](https://mewhehe.atabook.org/) . [STRAW](https://miwhehe.straw.page)               
- <img width="30" height="30" alt="spyglass-minecraft" src="https://github.com/user-attachments/assets/fcb17733-b1dd-4f7a-9871-124f5ef905f4" />
+[ATABOOK](https://mewhehe.atabook.org/) . [STRAW](https://miwhehe.straw.page) <img width="30" height="30" alt="spyglass-minecraft" src="https://github.com/user-attachments/assets/fcb17733-b1dd-4f7a-9871-124f5ef905f4" />  
+
+
 
 
 
