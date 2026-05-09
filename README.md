@@ -5,7 +5,7 @@
 
 
 
-c+h alway freely (‾◡◝)
+c+h alway freely (‾◡◝)  unless dni
 
 
 
