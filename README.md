@@ -25,7 +25,8 @@ rmk soon
 
 
 
-<img width="290" height="290" alt="190_20260607125929-removebg-preview" src="https://github.com/user-attachments/assets/5b333b37-9c58-4ab0-8163-fe2c62ca1a9a" />
+<img width="500" height="500" alt="190_20260607142931-removebg-preview" src="https://github.com/user-attachments/assets/24f59b0d-5ff2-4888-a4a4-9dd3e2616c6c" />
+
 
 
 
