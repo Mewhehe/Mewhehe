@@ -1,6 +1,10 @@
 
 <div align="center">
-rmk soon
+
+
+
+
+
 
 ![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=8ac5d2&style=flat&label=Telebreaker) 
 
@@ -25,7 +29,7 @@ rmk soon
 
 
 
-<img width="500" height="500" alt="190_20260607142931-removebg-preview" src="https://github.com/user-attachments/assets/24f59b0d-5ff2-4888-a4a4-9dd3e2616c6c" />
+<img width="250" height="250" alt="190_20260607142931-removebg-preview" src="https://github.com/user-attachments/assets/24f59b0d-5ff2-4888-a4a4-9dd3e2616c6c" />
 
 
 
@@ -35,5 +39,19 @@ rmk soon
 
 [ATABOOK](https://mewhehe.atabook.org/)       <img width="18" height="18" alt="mart-nullscape" src="https://github.com/user-attachments/assets/64477836-7167-4988-9847-c50d31601b8e" />
         [STRAW](https://miwhehe.straw.page)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
