@@ -6,8 +6,8 @@ rmk soon
 
 
 
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&duration=1&pause=0&color=8ac5d2&center=true&vCenter=true&width=435&lines=I+am+Mart.+The+waterimp!" alt="I am Mart">
 
-https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&duration=1&pause=0&color=8ac5d2&center=true&vCenter=true&width=435&lines=I+am+Mart.+The+waterimp
 
 
 
