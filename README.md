@@ -2,7 +2,7 @@
 <div align="center">
 rmk soon
 
-![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=980fa7&style=flat&label=Telebreaker) 
+![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=8ac5d2&style=flat&label=Telebreaker) 
 
 
 
