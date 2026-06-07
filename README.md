@@ -13,7 +13,9 @@ rmk soon
 
 
 
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&duration=1&pause=0&color=8ac5d2&center=true&vCenter=true&width=25&lines=I+am+Mart.+The+waterimp!" alt="I am Mart">
+<div align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&duration=1&pause=0&color=8ac5d2&center=true&vCenter=true&width=450&lines=I+am+Mart.+The+waterimp!" alt="I am Mart">
+</div>
 
 
 
