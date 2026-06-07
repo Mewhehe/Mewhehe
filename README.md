@@ -6,7 +6,7 @@ rmk soon
 
 
 
-<font color="8ac5d2"> I am Mart. The waterimp!</font>
+https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&duration=1&pause=0&color=8ac5d2&center=true&vCenter=true&width=435&lines=I+am+Mart.+The+waterimp
 
 
 
