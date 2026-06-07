@@ -59,7 +59,7 @@
 
 
 <div align="center">
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&duration=3500&pause=2000&color=8ac5d2&center=true&vCenter=true&width=450&lines=sign+ata+and+straw+now!" alt="I am Mart">
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&duration=3500&pause=2000&color=6abbbb&center=true&vCenter=true&width=450&lines=sign+ata+and+straw+now!" alt="I am Mart">
 </div>
 
 
