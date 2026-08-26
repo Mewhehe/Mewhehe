@@ -44,9 +44,7 @@
 
 
 
-<div align="center">
-<img width="80" height="80" alt="f4056e1bd2ed5e8b49e3b6401109b527-removebg-preview" src="https://github.com/user-attachments/assets/d98888f1-54c8-4d25-bb7b-bbc817e6e8d7" />
-</div>
+
 
 
 
@@ -55,10 +53,8 @@
 
 
 <div align="center">
-  <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=3078a4&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=cxh+always+freely!+unless+dni+on+name+" alt="I am Mart">
+  <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=3078a4&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=cxh+always+freely!+no+need+to+ask+unless+dni+on+name+" alt="I am Mart">
 </div>
-
-
 <div align="center">
   <img src="https://readme-typing-svg.demolab.com/?font=Fira+Code&size=12&duration=1&pause=0&color=6abbbb&center=true&vCenter=true&width=450&multiline=true&repeat=false&lines=sign+ata+and+straw+now!" alt="I am Mart">
 </div>
