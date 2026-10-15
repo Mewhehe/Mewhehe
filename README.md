@@ -4,13 +4,6 @@
 
 
 
-![Views](https://komarev.com/ghpvc/?username=Mewhehe&color=8ac5d2&style=flat&label=voidbreaker) 
-
-
-
-
-
-
 
 
 
@@ -26,25 +19,7 @@
 
 
 
-
-
-
 <img width="250" height="250" alt="190_20260607142931-removebg-preview" src="https://github.com/user-attachments/assets/24f59b0d-5ff2-4888-a4a4-9dd3e2616c6c" />
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -63,8 +38,6 @@
 
 
 [ᥲ𝗍ᥲᑲ᥆᥆k](https://mewhehe.atabook.org/) &nbsp;&nbsp;&nbsp; <img width="18" height="18" alt="MartPlush" src="https://github.com/user-attachments/assets/c1f6e098-013d-4329-9f7b-dd20242d41c2" /> &nbsp;&nbsp;&nbsp; [s𝗍rᥲᥕ](https://miwhehe.straw.page)
-
-
 
 
 
